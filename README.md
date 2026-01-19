@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RECE890518HSRYSS05
+RECE890518HSRYSS05
